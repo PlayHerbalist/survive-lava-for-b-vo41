@@ -1,4 +1,4 @@
-
+Experience escape tsunami for brainrots like never before with escape tsunami for brainrots hidden Scripts, the #1 Script. Includes auto-collect and
 
 
 
